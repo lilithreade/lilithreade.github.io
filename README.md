@@ -1,3 +1,3 @@
-new1game.github.io
+lilithreade.github.io
 
-Yoyes Technology Co., Ltd.
+lilithreade Technology Co., Ltd.
